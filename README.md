@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ElMe-Me
+- 👀 I’m interested in life and it's misteries 
+- 🌱 I’m currently learning python
+- 📫 How to reach me.don't.
